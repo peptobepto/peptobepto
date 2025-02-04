@@ -1,5 +1,4 @@
-web dev, python dev, super cool guy                                   
-puter science major                              
-uhh                                        
-big fan of cool rocks and bugs                                                
-Built a cpu in minecraft one time                                           
+I AM EVIL!!!!!!! AND CANNOT BE REASONED WITH!!!!!!!!!!!!!!!!
+SEND ALL BUSINESS ENQUIRIES TO 
+HELL@POOP.COM
+AKA H E DOUBLE HOCKEY STICKS!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
